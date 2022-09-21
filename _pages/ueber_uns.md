@@ -21,7 +21,7 @@ der Stadt Rheinfelden teil, um zusätzliches Geld für die Vereinskasse zu verdi
 Die Kinder verbringen einen großen Teil ihres Tages im Kindergarten. Ziel unserer Bemühungen ist es dazu beizutragen, dass ihre Fähig- und Fertigkeiten optimal gefördert werden können. Wir wollen deshalb aktiv helfen diesen Alltag zu gestalten.
 
 
----------------
+----------------
 
 
 ### Mitglied werden
